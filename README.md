@@ -11,4 +11,4 @@ Here, you'll find my projects and repositories that reflect my love for:
 
 I'm constantly learning, experimenting, and pushing my boundaries to stay at the forefront of this dynamic field. Feel free to explore my work, ask questions, or collaborate on exciting projects. Let's connect and geek out over data together! 🚀
 
-Connect with me on LinkedIn [insert LinkedIn profile link] for more in-depth discussions and collaborations. Cheers! 📈🔬🚀
+Connect with me on LinkedIn [https://www.linkedin.com/in/kallindsoni/] for more in-depth discussions and collaborations. Cheers! 📈🔬🚀
